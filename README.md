@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @baseggioo
+- 👀 I’m interested in learn
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate  com natureza
+- 
